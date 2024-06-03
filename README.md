@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...Python
 - 📫 How to reach me ...via linkedin
 - 😄 Pronouns: ...he/him
-- ⚡ Fun fact: ...I am very decent
+- ⚡ Fun fact: ...E-Mail was invented before Internet. Shocked!!!! ” I also got shocked after hearing this
 
 <!---
 Uday-Kiran-007/Uday-Kiran-007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
